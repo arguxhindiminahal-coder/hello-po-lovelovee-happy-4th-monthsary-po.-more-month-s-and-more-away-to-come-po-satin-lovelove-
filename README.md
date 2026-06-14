@@ -1,0 +1,2 @@
+# hello-po-lovelovee-happy-4th-monthsary-po.-more-month-s-and-more-away-to-come-po-satin-lovelove-
+alam po nating dalawa na tayo na lang po ang mag kakampi, kaya sana kahit nag aaway po tayo minsan eh maaayos pa din po natin at mag ka intindihan pa rin po tayong dalawa ng maayos po. hayaan mo po lovelove kapag mag kasama na po tayo hinding hindi ka po madidissapoint kasi una pa lang po aalagaan na po kita at sasamahan po sa mga journey mo po
